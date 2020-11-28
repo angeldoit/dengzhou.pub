@@ -25,3 +25,5 @@
 主要内容摘自：[邓州市人民政府网](http://www.dengzhou.gov.cn/)
 
 欢迎大家来邓州旅游、招商推介及考察学习
+
+[购买本域名](https://mi.aliyun.com/detail/online.html?domainName=dengzhou.pub)
